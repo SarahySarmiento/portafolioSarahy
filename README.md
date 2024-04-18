@@ -1,2 +1,0 @@
-# portafolioSarahy
-Portafolio Sarahy Sarmiento
